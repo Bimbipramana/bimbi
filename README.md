@@ -1,0 +1,2 @@
+# bimbi
+Saya pengen tau 
